@@ -1,0 +1,1 @@
+John Ganteng banget sih
